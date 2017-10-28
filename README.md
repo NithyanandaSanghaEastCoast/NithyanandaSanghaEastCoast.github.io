@@ -4,7 +4,7 @@
 1).  Hanover, NH:  Ph: (469) 215-0186  
 93 Lyme Rd. Hanover, NH 03755
  
-2).  Manhattan : FULL
+2).  Manhattan. Ph: (347) 696-0440 Location Full
  
 3).  Queens, NY:  Ph: (917) 373-6997
 New York Aadheenam
