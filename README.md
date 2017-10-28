@@ -4,9 +4,7 @@
 1).  Hanover, NH:  Ph: (469) 215-0186  
 93 Lyme Rd. Hanover, NH 03755
  
-2).  Manhattan, NY:  Ph: (973) 903-0969
-West 72nd St. New York, NY
-Call for address
+2).  Manhattan : FULL
  
 3).  Queens, NY:  Ph: (917) 373-6997
 New York Aadheenam
